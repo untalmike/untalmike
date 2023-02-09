@@ -28,7 +28,7 @@ My main hobbies are, made video tutorials about different themes, play with my c
 
 ## Job Info
 ***
-> 2017 - Actually <br>
+> 2017 - Today <br>
     &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; - Technologies and Telecommunications S.A. of C.V. <br>
     &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; - Main Activities:
 
