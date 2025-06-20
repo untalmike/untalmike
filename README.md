@@ -1,4 +1,4 @@
-# Welcome :hi:
+# Welcome
 ## Table of Contents
 1. [About me](#about-me)
 2. [Socials](#socials)
